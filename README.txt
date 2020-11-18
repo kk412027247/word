@@ -29,3 +29,30 @@ disrupt disˈrəpt 打乱
 monetary incentives ˈmänəˌterē inˈsen(t)iv 货币激励
 puny ˈpyo͞onē  弱小
 refrigerator rəˈfrijəˌrādər 冰箱
+sniffles  ˈsnifəl 嗅
+groan ɡrōn 呻吟
+chuckle ˈCHək(ə)l 轻笑
+pilot  ˈpīlət 飞行员；领航员
+episode ˈepəˌsōd 情节
+transsexual tran(t)(s)ˈsekSH(o͞o)əl 变性人
+stab 刺伤
+falsehood ˈfôlsˌho͝od  谬误
+insights  ˈinˌsīt  见解
+pandemonium ˌpændəˈməʊniəm 一片混乱；闹哄哄的场所
+trespassers  ˈtrespəsər  侵入者
+unsurpassed  ˌənsərˈpast 与伦比
+deliberately  dəˈlib(ə)rətlē 故意
+safeguard  ˈsāfˌɡärd  保障
+clamor ˈklæmər 喧闹
+lubricant ˈlo͞obrəkənt 润滑剂
+indistinct ˌindəˈstiNG(k)t  模糊
+dubbed 配音
+oath ōTH 誓言
+plenty  ˈplen(t)ē 充裕
+barricade ˈberəˌkād 路障
+handicapped ˈhændikæpt 残疾的
+toady  ˈtōdē  拍马屁
+disrupt disˈrəpt 打乱
+fuse fyo͞oz 保险丝
+slam slam 猛撞
+ 
