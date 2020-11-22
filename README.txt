@@ -55,4 +55,17 @@ toady  ˈtōdē  拍马屁
 disrupt disˈrəpt 打乱
 fuse fyo͞oz 保险丝
 slam slam 猛撞
- 
+painkiller ˈpānˌkilər 止痛药
+sobbing  ˈsäbiNG   抽泣
+prescription  prəˈskripSH(ə)n  处方
+meds 药
+epidemic  ˌepəˈdemik  流行性
+shady  ˈSHādē  阴凉处
+retirement rəˈtī(ə)rmənt 退休
+reminisce  ˌreməˈnis 回忆
+nasty  ˈnastē  讨厌
+cornflakes  ˈkôrnˌflāks  玉米片
+infatuated inˈfaCHo͝oeədəd 痴情
+dice dīs 骰子
+religious rɪˈlɪdʒəs 宗教的
+pray prā 祈祷
