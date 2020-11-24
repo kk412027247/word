@@ -69,3 +69,32 @@ infatuated inˈfaCHo͝oeədəd 痴情
 dice dīs 骰子
 religious rɪˈlɪdʒəs 宗教的
 pray prā 祈祷
+crochet  krōˈSHā  钩针编织
+pillows  ˈpilō 枕头
+set off fireworks   放烟花
+crappy ˈkræpi 蹩脚的
+miserable ˈmɪzrəbl 悲惨的
+faculty ˈfæklti 全体教员
+epidemic ˌepɪˈdemɪk 传染病
+catastrophic ˌkætəˈstrɒfɪk 灾难的
+proportions prə'pɔ:ʃəns 比例
+mourning ˈmɔːnɪŋ 哀痛
+eager ˈiːɡər 渴望的
+opioid 'əʊpɪɒɪd  鸦片样物质
+untimely ʌnˈtaɪmli 过早的
+bar  mitzvah 'mɪtsvə  成年礼
+collapsed kəˈlæpst 倒塌
+massive ˈmæsɪv 大量的
+oxycodone ˌɑːksɪˈkoʊdoʊn 氧可酮
+in one's prime 正当年
+applause əˈplɔːz 喝彩
+sling slɪŋ 用投石器投掷
+on the warpath  ˈwɔːpɑːθ 大发雷霆
+motivated ˈməʊtɪveɪtɪd 有积极性的
+screw skruː 吝啬鬼
+flushes ˈflʌʃɪz 冲洗
+ruthless ˈruːθləs  无情的
+rascal ˈrɑːskl  流氓
+clatter ˈklætər   嘈杂的谈笑声
+solitaire ˌsɒləˈteər 纸牌
+coroner ˈkɒrənər 验尸官
