@@ -98,3 +98,16 @@ rascal ˈrɑːskl  流氓
 clatter ˈklætər   嘈杂的谈笑声
 solitaire ˌsɒləˈteər 纸牌
 coroner ˈkɒrənər 验尸官
+autopsy ˈɔːtɒpsi 验尸
+toxicology ˌtɒksɪˈkɒlədʒi 毒物学
+confront  kənˈfrʌnt 面对
+hospice ˈhäspəs 临终关怀
+renowned rɪˈnaʊnd 著名的
+rag ræɡ 碎屑
+doll dɒl  洋娃娃
+oughta 'ɔːtə 应该
+addicted əˈdiktəd 上瘾
+heroine ˈherōən  海洛因
+sneak snēk 潜行
+on stage stāj 在舞台上
+muddy puddles ˈmədē ˈpədl  泥泞的水坑
