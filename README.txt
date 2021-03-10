@@ -111,3 +111,4 @@ heroine ˈherōən  海洛因
 sneak snēk 潜行
 on stage stāj 在舞台上
 muddy puddles ˈmədē ˈpədl  泥泞的水坑
+i thinks i got a little carried awat 我想我有点忘乎所以了
